@@ -25,9 +25,8 @@ Jeremy could only continue on the path if he correctly answered all of the Zooke
 After Jeremy correctly answered the riddles, the Zookeeper led him to the Unicorn King.
 
 Jeremy met the Unicorn King. He learned of the Unicorn King's mystic powers from the Zookeeper. 
-Jeremy asked the Unicorn King if it was possible to learn these powers. Not from a Jedi, said the Unicorn King.
-The Zookeeper told him that the Senate will decide his fate. But the Unicorn King replied that he is actually the Senate.
-The true Unicorn King was the Zookeeper all along. The real power was the imagination Jeremy used to dream this whole thing up.
+Jeremy asked the Unicorn King if it was possible to learn these powers. Not from me, he replied.
+The true Unicorn King was the Zookeeper all along. The real friendship was the imagination along the way.
 
 The end.
 
