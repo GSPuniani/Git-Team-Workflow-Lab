@@ -21,7 +21,11 @@ He stuck his head in the door. The colors of the foliage were intense green, bro
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Jeremy met the Unicorn King who granted him magic powers.
+Jeremy met the Unicorn King. He learned of the Unicorn King's mystic powers from the Zookeeper. 
+Jeremy asked the Unicorn King if it was possible to learn these powers. Not from a Jedi, said the Unicorn King.
+The Zookeeper told him that the Senate will decide his fate. But the Unicorn King replied that he is actually the Senate.
+The true Unicorn King was the Zookeeper all along. The real power was the imagination Jeremy used to dream this whole thing up.
+
 The end.
 
 ## Cast
