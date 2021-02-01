@@ -20,6 +20,9 @@ Normally Jeremy would leave the door alone, but he was worried that an animal mi
 He stuck his head in the door. The colors of the foliage were intense green, brown, and chartreuse. He called out for a zoo keeper but got no response.
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
+Then he was greeted by the mysterious Zookeeper. 
+Jeremy could only continue on the path if he correctly answered all of the Zookeeper's zoo riddles.
+After Jeremy correctly answered the riddles, the Zookeeper led him to the Unicorn King.
 
 Jeremy met the Unicorn King. He learned of the Unicorn King's mystic powers from the Zookeeper. 
 Jeremy asked the Unicorn King if it was possible to learn these powers. Not from a Jedi, said the Unicorn King.
